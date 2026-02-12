@@ -72,7 +72,7 @@
 
 ###
 
-<h3 align="left">Working At Arteon Interactive</h3>
+
 
 ###
 
